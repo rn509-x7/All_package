@@ -27,5 +27,5 @@ contact and flow me😎😎
 Youtube : https://youtube.com/rn509x7
 
 
-WhatsApp : wa.me/621317498393
+WhatsApp : https://wa.me/621317498393
 
